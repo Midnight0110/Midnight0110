@@ -1,0 +1,4 @@
+- 👋 Hi there! I’m @Midnight0110
+- 🌱 I’m currently learning HTML and CSS
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm currently a student and I'm getting a degree in Video Production.
